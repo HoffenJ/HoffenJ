@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @HoffenJ
+- 👀 I’m interested in AI
